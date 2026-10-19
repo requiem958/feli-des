@@ -130,9 +130,10 @@ Dans le cadre de cette charte, des missions de promotions de la pratique des jeu
 - • Prendre en compte les retours des membres et participant(e)s non-membres pour l’amélioration du confort et du plaisir ludique de toustes.
 - • Rendre identifiables tous membres du CA ou responsables pouvant être sollicités dans le cadre de conflits ou de non-respect de la charte.
 N’oubliez pas que l’important dans cette charte est son intention. Merci de ne pas la détourner et rappelez-vous que le but est de toustes jouer ensemble. Nous vous souhaitons une excellente partie avec nous !
-Contact : <a href="mailto:felides38@gmail.com">felides38@gmail.com</a>
 
-<p class="encart">FÉLI’dés (Fantastique Équipée Ludique Inclusive avec des dés)<
+Contact : <a href="mailto:association@felides-jdr.fr">association@felides-jdr.fr</a>
+
+<p class="encart">FÉLI’dés (Fantastique Équipée Ludique Inclusive avec des dés)</p>
 
 
 ### ARTICLE PREMIER - NOM
